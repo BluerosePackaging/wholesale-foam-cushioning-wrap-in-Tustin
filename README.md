@@ -1,4 +1,4 @@
-# wholesale-foam-cushioning-wrap-in-Tustin | Bluerose Packaging
+# Wholesale Foam Cushioning Wrap-in-Tustin | Bluerose Packaging
 
 Order wholesale foam cushioning wrap in Tustin today for reliable, cost-effective protection. Enjoy bulk pricing, quick local shipping, and premium quality foam packaging materials.
 
